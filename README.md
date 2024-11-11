@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Kishor
 - 👀 I’m interested to share my knowledge
 - 🌱 I’m currently working as a Devops Engineer
-- � I  have 5+ years of experiance as a Devops Engineer.
+- � I have good experiance as a Devops Engineer.
